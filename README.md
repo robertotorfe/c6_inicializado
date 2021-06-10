@@ -1,1 +1,1 @@
-# c6_inicializado
+# Soy Laura Ramos
